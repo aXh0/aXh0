@@ -8,6 +8,8 @@
 
 ### My profession is psychology, art photographer and I am also a writer.
 
+### I completed a special course on computer systems and networks.
+
 ### Social networks
 
  - [Facebook](https://www.facebook.com/profile.php?id=100086473780228)
