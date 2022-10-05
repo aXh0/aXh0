@@ -10,6 +10,6 @@
 
 ### Social networks
 
- - [Facebook](https://www.facebook.com/profile.php?id=100086473780228)
- - [Instagram](https://instagram.com/fsociy)
+ - [Twitter](https://twitter.com/anatsvizhba)
+ - [Instagram](https://instagram.com/ana_tsvizhba)
  - [Gmail](mailto:anatsvizhba@gmail.com)
